@@ -1,1 +1,0 @@
-# PATHAN-G
